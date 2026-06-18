@@ -1,0 +1,86 @@
+《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   
+http://www.360jisusaiche.com
+http://www.360xingyunfeiting.com
+http://www.360shuangseqiu.com
+http://www.360daletou.com
+http://www.shishicai360.com
+http://www.360liuhecai.com
+http://www.360qixingcai.com
+http://www.360kuaisan.com
+http://www.360jisukuaisan.com
+http://www.360jisufeiting.com
+http://www.360jisuliuhecai.com
+http://www.360jisukuaileshifen.com
+http://www.360chongqingshishicai.com
+http://www.360aozhouxingyun.com
+http://www.360zhongguocaipiaowang.com
+http://www.360zhongguotiyucaipiao.com
+http://www.360fulicaipiao.com
+http://www.360ticai.com
+http://www.360fucaiwang.com
+http://www.360jingcaiwang.com
+http://www.360xinlangcaipiao.com
+http://www.360baiducaipiao.com
+http://www.360fenghuangyule.com
+http://www.360shengshicaipiao.com
+http://www.360huangjincaipiao.com
+http://www.360tiantiancaipiao.com
+http://www.360huanlecaipiao.com
+http://www.360dongfangcaipiao.com
+http://www.360wanfengcaipiao.com
+http://www.360doudizhucaipiao.com
+http://news.360jisusaiche.com
+http://news.360xingyunfeiting.com
+http://news.360shuangseqiu.com
+http://news.360daletou.com
+http://news.shishicai360.com
+http://news.360liuhecai.com
+http://news.360qixingcai.com
+http://news.360kuaisan.com
+http://news.360jisukuaisan.com
+http://news.360jisufeiting.com
+http://news.360jisuliuhecai.com
+http://news.360jisukuaileshifen.com
+http://news.360chongqingshishicai.com
+http://news.360aozhouxingyun.com
+http://news.360zhongguocaipiaowang.com
+http://news.360zhongguotiyucaipiao.com
+http://news.360fulicaipiao.com
+http://news.360ticai.com
+《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   
+http://news.360fucaiwang.com
+http://news.360jingcaiwang.com
+http://news.360xinlangcaipiao.com
+http://news.360baiducaipiao.com
+http://news.360fenghuangyule.com
+http://news.360shengshicaipiao.com
+http://news.360huangjincaipiao.com
+http://news.360tiantiancaipiao.com
+http://news.360huanlecaipiao.com
+http://news.360dongfangcaipiao.com
+http://news.360wanfengcaipiao.com
+http://news.360doudizhucaipiao.com
